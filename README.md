@@ -1,0 +1,3 @@
+- 👋 Oii, sou o @alysonhss
+- 👀 Cheguei aqui por curiosidade
+- 🌱 Iniciante nos aprendizados
